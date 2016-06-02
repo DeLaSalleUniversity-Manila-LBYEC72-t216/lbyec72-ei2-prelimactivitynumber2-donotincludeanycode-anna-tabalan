@@ -14,7 +14,7 @@ lbyec72-ei2-prelimactivitynumber2-donotincludeanycode-anna-tabalan created by Gi
 ![](12.JPG)
 ![](13.JPG)
 
-#Chocie 2
+#Choice 2
 ![](7.JPG)
 ![](8.JPG)
 ![](9.JPG)
